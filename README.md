@@ -11,7 +11,7 @@
 
 - 😶‍🌫️ How to reach me - **subha9.5roy350@gmail.com ✌️**
 
-- ⚡ Fun fact **I am a wholesome guy 😎😎**
+- ⚡ **I am a wholesome guy 😎😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
