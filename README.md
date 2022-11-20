@@ -3,7 +3,6 @@
 
 <img align="right" alt="coding" width="350" src="https://cdn.dribbble.com/users/1162077/screenshots/5403918/focus-animation.gif">
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=itz-coder-subha&label=Profile%20views&color=0e75b6&style=flat" alt="itz-coder-subha" /> </p>
 
 - 📚 Studying...DONT KNOW WHAT BUT STILL **Physics & Maths 🥲**
 
